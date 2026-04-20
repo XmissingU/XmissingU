@@ -1,4 +1,4 @@
-wip haha
+<a href="https://ibb.co/3ymc9KQF"><img src="https://i.ibb.co/GvQR4mNM/Untitled4-20260418015814.png" alt="Untitled4-20260418015814" border="0"></a><br /><a target='_blank' href='https://imgbb.com/'></a><br />
 
 <!--
 **XmissingU/XmissingU** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
